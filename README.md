@@ -3,7 +3,7 @@ ASUS MAXIMUS VII HERO 395 http://most.bg/dunni-platki/asus/asus-maximus-vii-hero
 Intel Core i5 4690k 468 http://most.bg/protsesori/intel/i5-4690-3-5g-6mb-box-lga1150.html 36
 Asus strix gtx 960 438 http://most.bg/video-karti/asus/asus-strix-gtx960-dc2oc-2gd5.html 36
 Kingston HyperX Fury Black 148 https://www.jarcomputers.com/l_bg/?m=7&i=585750 ??
-Corsair Builder Series™ CX600 V3 177 https://www.jarcomputers.com/l_bg/?m=7&i=546652 ??
+Corsair AX860i 429 http://www.plesio.bg/zahranvane-c-69977705/corsair-psu-ax-860w-80-platinum-modular-p-309849.html
 Corsair 750D 339(319 online) http://plesio.bg/kutii-c-69977695/corsair-obsidian-series-750d-full-tower-p-299585.html
 1TB WD Black 168 https://www.jarcomputers.com/l_bg/?m=7&i=560179
 =~2113
