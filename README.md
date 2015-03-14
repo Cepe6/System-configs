@@ -6,6 +6,7 @@ Kingston HyperX Fury Black 148 https://www.jarcomputers.com/l_bg/?m=7&i=585750 ?
 Corsair AX860i 429 http://www.plesio.bg/zahranvane-c-69977705/corsair-psu-ax-860w-80-platinum-modular-p-309849.html
 Corsair 750D 339(319 online) http://plesio.bg/kutii-c-69977695/corsair-obsidian-series-750d-full-tower-p-299585.html
 1TB WD Black 168 https://www.jarcomputers.com/l_bg/?m=7&i=560179
+Corsair H110 287 https://www.jarcomputers.com/l_bg/?m=7&i=574647
 =~2113
 
 
