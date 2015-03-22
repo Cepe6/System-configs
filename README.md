@@ -30,3 +30,27 @@ Corsair 750D 339(319 online) http://plesio.bg/kutii-c-69977695/corsair-obsidian-
 Noctua NH-d15 - 178 https://jarcomputers.com/l_bg/?m=7&i=584150 / corsair h110 cpu cooler - 269 https://jarcomputers.com/l_bg/?m=7&i=574647
 Samsung SSD 8xx 256GB
 =~4241
+
+
+
+
+
+
+
+
+
+
+
+Intel Core i5-4460 441 http://most.bg/i5-4460-3-2g-6mb-box-lga1150.html
+Дънна платка ASUS Z97-P 255 http://most.bg/dunni-platki/asus/asus-z97-p-1150.html
+RAM Corsair 2x4GB, DDR3,1600MHz 194 http://pcmall.bg/ram-corsair-ddr3-1600mhz-8gb-2x240-dimm-unbuffered-9-9-9-24-vengeance-arctic-white-heatspreader-cml8gx3m2a1600c9w_25429
+Case COOLERMASTER K380 168 http://most.bg/kutii/cooler-master/cm-k380-w-elite-500w.html
+Диск SEAGATE, 1TB 138 http://most.bg/diskove/seagate/1t-sg-sata-6g-7200-64m-3y-warr.html
+=~1153
+
+
+
+KINGSTON 240GB, SSD http://most.bg/diskove/kingston/kingston-ssd-sv300s37a-240g.html
+Noctua NF-F12 https://www.jarcomputers.com/l_bg/?m=7&i=564272
+Вентилатор NZXT Kraken X31 http://most.bg/ventilatori/phantom-kraken-x31-watter-cool.html
+Вентилатор 120mm, Noctua NF-S12A x2 https://www.jarcomputers.com/l_bg/?m=7&i=564276
