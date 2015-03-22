@@ -39,7 +39,7 @@ Samsung SSD 8xx 256GB
 
 
 
-
+------------Vladko
 
 Intel Core i5-4460 441 http://most.bg/i5-4460-3-2g-6mb-box-lga1150.html
 Дънна платка ASUS Z97-P 255 http://most.bg/dunni-platki/asus/asus-z97-p-1150.html
